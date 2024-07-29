@@ -1,14 +1,4 @@
 
-![](https://komarev.com/ghpvc/?username=kingstar0126&color=green)
-
-This is my address: <br/>
-Telegram: @robustdev111
-<br />
-Skype😘: live:.cid.db542de1c34b25ee
-<br />
-gmail 📨: kingtiger6660@gmail.com
-<br />
-
 
 
 <div>
